@@ -1,1 +1,0 @@
-# ShudoPhysicsClub.github.io
